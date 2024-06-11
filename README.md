@@ -8,7 +8,7 @@
 ## About me
 
 <p>
- 💜&emsp;Love to solve problems and connect it with real world <br/>
+ 💜&emsp;Love to solve problems and connect it with the real world <br/>
  📧&emsp;Reach me anytime: mahfuzurrahman907@gmail.com<br/>
 </p>
 
